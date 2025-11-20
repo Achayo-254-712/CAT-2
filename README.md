@@ -1,2 +1,0 @@
-# CAT-2
-CAT2 EXAMS
